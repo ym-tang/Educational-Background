@@ -1,3 +1,5 @@
+Now I am a sophomore master student at Capital Normal University. And the following two universities I get educated from both locate in China.
+
 - **Hohai University (HHU)**.         &#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;&#160;   _2014/09-2018/06_  
  department of material science for bachelor’s degree
 
