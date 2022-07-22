@@ -1,7 +1,7 @@
-- **Hohai University (HHU)**.             2014/09-2018/06  
+- **Hohai University (HHU)**.         &#160     2014/09-2018/06  
  department of material science for bachelor’s degree
 
-- **Capital Normal University (CNU)**.           2020/09-2023/06  
+- **Capital Normal University (CNU)**.      &#160      2020/09-2023/06  
  department of mathematics for master’s degree 
 
 ### [Home](https://ym-tang.github.io/Home/)
